@@ -1,0 +1,2 @@
+# studious-telegram
+Os operating 
